@@ -1,4 +1,4 @@
-# Gold Any% Glitchles Route
+# Gold Any% Glitchless Route
  
 ## BEFORE STARTING
 
